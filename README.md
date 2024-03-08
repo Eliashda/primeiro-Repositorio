@@ -1,2 +1,29 @@
-# primeiro-Repositorio
-Teste prof
+I work all night, I work all day
+To pay the bills I have to pay
+Ain't it sad?
+And still, there never seems to be
+A single penny left for me
+That's too bad
+
+In my dreams, I have a plan
+If I got me a wealthy man
+I wouldn't have to work at all
+I'd fool around and have a ball
+
+Money, money, money
+Must be funny
+In the rich man's world
+Money, money, money
+Always sunny
+In the rich man's world
+A-ha, ah, ah
+All the things I could do
+If I had a little money
+It's a rich man's world
+
+A man like that is hard to find
+But I can't get him off my mind
+Ain't it sad?
+And if he happens to be free
+I bet he wouldn't fancy me
+That's too bad
